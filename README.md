@@ -1,3 +1,4 @@
-<#Strategic Intelligence - Crypto - Reserve
+<#World Economic Forum |WEF
+<Crypto - Reserve
 <Management of the Common Good
 <
